@@ -1,1 +1,1 @@
-# tugas-praktisi-2
+# tugas-praktisi-1 dan 2
